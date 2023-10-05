@@ -1,1 +1,0 @@
-# CoffeePlease.PrivacyPolicy
